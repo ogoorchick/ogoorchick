@@ -7,5 +7,5 @@ But for now my intelligence is at the level of Morty's.
 
 - ✉️ How to contact me:
    - email: tur.ogurcov@gmail.com
-   - Telegram: [hot_sneg](https://t.me/ogoorchick)
+   - Telegram: [ogoorchick](https://t.me/ogoorchick)
  
